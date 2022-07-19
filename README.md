@@ -1,6 +1,6 @@
 ### Masks for Viral Protection: Useless and can harm!
 
-# Using a mask for more than four hours per day "promotes facial alkalinization and inadvertently encourages dehydration, which in turn can enhance barrier breakdown and bacterial infection risk." Other reported adverse effects include: Increase in headaches and sweating, Decreased cognitive precision, association with medical errors, interference with social learning in children, obscured nonverbal communication, distorted verbal speech, removal of visual cues, which is detrimental to people with hearing loss.
+# Using a mask for more than four hours per day "promotes facial alkalinization and inadvertently encourages dehydration, which in turn can enhance barrier breakdown and bacterial infection risk." Other reported adverse effects include: Increase in headaches, sweating, decreased cognitive precision, association with medical errors, interference with social learning in children, obscured nonverbal communication, distorted verbal speech, removal of visual cues, which is detrimental to people with hearing loss.
 [https://www.medrxiv.org/content/10.1101/2021.05.18.21257385v1.full.pdf](https://www.medrxiv.org/content/10.1101/2021.05.18.21257385v1.full.pdf)
 
 # CDC says “required mask use among students was NOT statistically significant compared with schools where mask use was optional.”
@@ -18,7 +18,7 @@
 # Masks and social distancing are unconstitutional as ruled in Circuit Court on 06/08/2021
 [https://www.scribd.com/document/511055321/Boone-Circuit-Court-Order](https://www.scribd.com/document/511055321/Boone-Circuit-Court-Order)
 
-# The Foegen Effect: Mask Mandates Increased COVID-19 Deaths. Deep re-inhalation of droplets and virions caught on facemasks might make COVID-19 infection more likely or more severe. Results from this study strongly suggest that mask mandates actually caused about 1.5 times the number of deaths or ∼50% more deaths compared to no mask mandates. 
+# The Foegen Effect: Mask Mandates Increased COVID-19 Deaths by 51% or more compared to no mask mandates. Deep re-inhalation of droplets and virions caught on facemasks might make COVID-19 infection more likely or more severe.
 [https://journals.lww.com/md-journal/Fulltext/2022/02180/The_Foegen_effect__A_mechanism_by_which_facemasks.60.aspx](https://journals.lww.com/md-journal/Fulltext/2022/02180/The_Foegen_effect__A_mechanism_by_which_facemasks.60.aspx)
 
 # A moderate positive correlation was found between mask usage and deaths in Western Europe, which "suggests that the universal use of masks may have had harmful unintended consequences."
