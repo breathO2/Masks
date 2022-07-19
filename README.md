@@ -1,6 +1,6 @@
 Masks for Viral Protection: Useless and can harm!
 
-# Hoover Institure Dr Scott Atlas Study on Mask Policies
+# Dr Scott Atlas Study on Mask Policies - Hoover Institute 
 [https://www.policyed.org/lessons-hoover-policy-boot-camp/reviewing-policy-responses-covid-19-scott-atlas/video-0](https://www.policyed.org/lessons-hoover-policy-boot-camp/reviewing-policy-responses-covid-19-scott-atlas/video-0)
 
 # The Foegen Effect: Mask Mandates Increased COVID-19 Deaths by 51% or more compared to no mask mandates. Deep re-inhalation of droplets and virions caught on facemasks might make COVID-19 infection more likely or more severe.
