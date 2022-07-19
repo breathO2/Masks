@@ -15,7 +15,7 @@
 # There has been one large randomized controlled trial that specifically examined whether masks protect their wearers from the coronavirus.  This study found mask wearing “did not reduce, at conventional levels of statistical significance, the incidence of Sars-Cov-2-infection.”
 [https://www.acpjournals.org/doi/10.7326/M20-6817](https://www.acpjournals.org/doi/10.7326/M20-6817)
 
-# Masks and social distancing are unconstutional as ruled in Circuit Court on 06/08/2021
+# Masks and social distancing are unconstitutional as ruled in Circuit Court on 06/08/2021
 [https://www.scribd.com/document/511055321/Boone-Circuit-Court-Order](https://www.scribd.com/document/511055321/Boone-Circuit-Court-Order)
 
 # The Foegen Effect: Mask Mandates Increased COVID-19 Deaths. Deep re-inhalation of droplets and virions caught on facemasks might make COVID-19 infection more likely or more severe. Results from this study strongly suggest that mask mandates actually caused about 1.5 times the number of deaths or ∼50% more deaths compared to no mask mandates. 
