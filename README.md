@@ -1,4 +1,10 @@
-### Masks for Viral Protection: Useless and can harm!
+Masks for Viral Protection: Useless and can harm!
+
+# Hoover Institure Dr Scott Atlas Study on Mask Policies
+[https://www.policyed.org/lessons-hoover-policy-boot-camp/reviewing-policy-responses-covid-19-scott-atlas/video-0](https://www.policyed.org/lessons-hoover-policy-boot-camp/reviewing-policy-responses-covid-19-scott-atlas/video-0)
+
+# The Foegen Effect: Mask Mandates Increased COVID-19 Deaths by 51% or more compared to no mask mandates. Deep re-inhalation of droplets and virions caught on facemasks might make COVID-19 infection more likely or more severe.
+[https://journals.lww.com/md-journal/Fulltext/2022/02180/The_Foegen_effect__A_mechanism_by_which_facemasks.60.aspx](https://journals.lww.com/md-journal/Fulltext/2022/02180/The_Foegen_effect__A_mechanism_by_which_facemasks.60.aspx)
 
 # Using a mask for more than four hours per day "promotes facial alkalinization and inadvertently encourages dehydration, which in turn can enhance barrier breakdown and bacterial infection risk." Other reported adverse effects include: Increase in headaches, sweating, decreased cognitive precision, association with medical errors, interference with social learning in children, obscured nonverbal communication, distorted verbal speech, removal of visual cues, which is detrimental to people with hearing loss.
 [https://www.medrxiv.org/content/10.1101/2021.05.18.21257385v1.full.pdf](https://www.medrxiv.org/content/10.1101/2021.05.18.21257385v1.full.pdf)
@@ -18,9 +24,6 @@
 # Masks and social distancing are unconstitutional as ruled in Circuit Court on 06/08/2021
 [https://www.scribd.com/document/511055321/Boone-Circuit-Court-Order](https://www.scribd.com/document/511055321/Boone-Circuit-Court-Order)
 
-# The Foegen Effect: Mask Mandates Increased COVID-19 Deaths by 51% or more compared to no mask mandates. Deep re-inhalation of droplets and virions caught on facemasks might make COVID-19 infection more likely or more severe.
-[https://journals.lww.com/md-journal/Fulltext/2022/02180/The_Foegen_effect__A_mechanism_by_which_facemasks.60.aspx](https://journals.lww.com/md-journal/Fulltext/2022/02180/The_Foegen_effect__A_mechanism_by_which_facemasks.60.aspx)
-
 # A moderate positive correlation was found between mask usage and deaths in Western Europe, which "suggests that the universal use of masks may have had harmful unintended consequences."
 [https://www.ncbi.nlm.nih.gov/pmc/articles/PMC9123350/](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC9123350/)
 
@@ -30,3 +33,8 @@
 # US District Court states "the Mask mandate exceeds CDC's statuary authority and violates the procedures required for agency rule making under the APA."
 [https://www.documentcloud.org/documents/21636492-mask-mandate-order](https://www.documentcloud.org/documents/21636492-mask-mandate-order)
 
+# Testimonials for a Civil Proceeding regarding School Mask Policies
+[https://drive.google.com/file/d/106AfuBg3qslWwEiMtV-hnyXc2Dcc-RC1/view](https://drive.google.com/file/d/106AfuBg3qslWwEiMtV-hnyXc2Dcc-RC1/view)
+
+# Elevation of CO2 from mask wearing
+[https://jamanetwork.com/journals/jamapediatrics/fullarticle/2781743](https://jamanetwork.com/journals/jamapediatrics/fullarticle/2781743)
