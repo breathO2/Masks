@@ -16,7 +16,7 @@
 [https://www.acpjournals.org/doi/10.7326/M20-6817](https://www.acpjournals.org/doi/10.7326/M20-6817)
 
 # Masks and social are unconstutional as ruled in Circuit Court on 06/08/2021
-[https://www.scribd.com/document/511055321/Boone-Circuit-Court-Order]([https://www.scribd.com/document/511055321/Boone-Circuit-Court-Order
+[https://www.scribd.com/document/511055321/Boone-Circuit-Court-Order](https://www.scribd.com/document/511055321/Boone-Circuit-Court-Order
 
 # The Foegen Effect: Mask Mandates Increased COVID-19 Deaths. Deep re-inhalation of droplets and virions caught on facemasks might make COVID-19 infection more likely or more severe. Results from this study strongly suggest that mask mandates actually caused about 1.5 times the number of deaths or ∼50% more deaths compared to no mask mandates. 
 [https://journals.lww.com/md-journal/Fulltext/2022/02180/The_Foegen_effect__A_mechanism_by_which_facemasks.60.aspx](https://journals.lww.com/md-journal/Fulltext/2022/02180/The_Foegen_effect__A_mechanism_by_which_facemasks.60.aspx)
