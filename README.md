@@ -1,5 +1,8 @@
 Masks for Viral Protection: Useless and can harm!
 
+# A Comparison of US States with mask mandates versus no mask mandates
+[https://www.city-journal.org/the-failed-covid-policy-of-mask-mandates#.Yl7PE17NvGo.twitter](https://www.city-journal.org/the-failed-covid-policy-of-mask-mandates#.Yl7PE17NvGo.twitter)
+
 # Dr Scott Atlas Study on Mask Policies - Hoover Institute 
 [https://www.policyed.org/lessons-hoover-policy-boot-camp/reviewing-policy-responses-covid-19-scott-atlas/video-0](https://www.policyed.org/lessons-hoover-policy-boot-camp/reviewing-policy-responses-covid-19-scott-atlas/video-0)
 
