@@ -45,6 +45,6 @@ Masks for Viral Protection: Useless and can harm!
 # Elevation of CO2 from mask wearing
 [https://jamanetwork.com/journals/jamapediatrics/fullarticle/2781743](https://jamanetwork.com/journals/jamapediatrics/fullarticle/2781743)
 
-# 150 Studies showing Masks Ineffective
+# 150+ Studies showing Masks Ineffective
 [https://brownstone.org/articles/more-than-150-comparative-studies-and-articles-on-mask-ineffectiveness-and-harms/](https://brownstone.org/articles/more-than-150-comparative-studies-and-articles-on-mask-ineffectiveness-and-harms/)
 
