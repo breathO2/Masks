@@ -15,6 +15,9 @@ Masks for Viral Protection: Useless and can harm!
 # Using a mask for more than four hours per day "promotes facial alkalinization and inadvertently encourages dehydration, which in turn can enhance barrier breakdown and bacterial infection risk." Other reported adverse effects include: Increase in headaches, sweating, decreased cognitive precision, association with medical errors, interference with social learning in children, obscured nonverbal communication, distorted verbal speech, removal of visual cues, which is detrimental to people with hearing loss.
 [https://www.medrxiv.org/content/10.1101/2021.05.18.21257385v1.full.pdf](https://www.medrxiv.org/content/10.1101/2021.05.18.21257385v1.full.pdf)
 
+# Immunocompromised people should avoid repeated use of masks to prevent microbial infection.
+[https://www.nature.com/articles/s41598-022-15409-x#Tab1](https://www.nature.com/articles/s41598-022-15409-x#Tab1)
+
 # CDC says “required mask use among students was NOT statistically significant compared with schools where mask use was optional.”
 [https://www.cdc.gov/mmwr/volumes/70/wr/mm7021e1.htm](https://www.cdc.gov/mmwr/volumes/70/wr/mm7021e1.htm)
 
